@@ -1,1 +1,1 @@
-# asdasd0.2
+# asdasd0.2others= --- = 0+0+0 = 0
